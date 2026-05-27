@@ -1,16 +1,15 @@
-## Hi there 👋
+## - 🤍#spiritualbaddie
 
-<!--
-**yohanna77/yohanna77** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- ## ☆ redes sociais:
+ 
+୨ৎ ig: z.ssobral
+୨ৎ ttk: a.oliveiraxz_
 
-Here are some ideas to get you started:
+- ## ☆ sobre mim:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+      ୨ৎ me chamo Yohanna!
+
+      ୨ৎ tenho 15 anos.
+  
+      ୨ৎ amo ouvir musica.
+## - 🤍 Protegida pela minha energia e guiada pela minha própria luz.
